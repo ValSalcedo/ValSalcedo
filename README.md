@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ValSalcedo
 - 👀 I’m interested in Eating
-- 🌱 I’m currently learning Java
+- 🌱 I’m currently learning How To Be Yours
 - 💞️ I’m looking to collaborate with you
 - 📫 How to reach me 09367801721
 
